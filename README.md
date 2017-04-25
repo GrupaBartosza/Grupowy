@@ -1,0 +1,2 @@
+# Grupowy
+Miłej pracy :)
